@@ -3,10 +3,11 @@
  ![Alt text](https://i.postimg.cc/XJDwvDmr/Untitled698-20241008194521.png)
 
 
-♡ > she/her < ♡
-<br >
-<br >
- ˗˗ˋ&nbsp;cupid & cole brookstone biggest kinnie ^_^ !!&nbsp;ˊ˗
+                               ♡ > she/her < ♡
+
+                             ''   multifandom   ''            
+
+             ˗˗ˋ  cupid & cole brookstone biggest kinnie ^_^ !!   ˊ˗
 
 
 ![Alt text](https://i.postimg.cc/43BgmrGb/Untitled699-20241008200656.png)
