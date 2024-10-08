@@ -7,7 +7,8 @@
 
                              ''   multifandom   ''            
 
-             ˗˗` cupid & cole brookstone biggest kinnie ^_^ !! ˊ˗
+                         ˗ˋ cupid & cole brookstone ˊ˗
+                             biggest kinnie ^_^ !! 
 
 
 ![Alt text](https://i.postimg.cc/43BgmrGb/Untitled699-20241008200656.png)
