@@ -1,4 +1,6 @@
-                                             ꒷꒦︶꒦꒷🧪꒷꒦︶꒷꒦
-![](https://github.com/invader-zim/career-day/lord-of-all-humans//Gif.gif)
+   ![Alt text](https://i.postimg.cc/5yFR3vM2/Untitled697-20241008192005.png)
+     ![Alt text](https://i.postimg.cc/Y09pqdgy/Untitled697-20241008191331.png)
 
+
+                              
                                       
