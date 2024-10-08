@@ -2,9 +2,9 @@
 
  ![Alt text](https://i.postimg.cc/XJDwvDmr/Untitled698-20241008194521.png)
 
-♡  > she/her   |   istp ㅤ<  ♡
+   ♡  > she/her   |   istp ㅤ<  ♡
 
-   ˗ˋ   cupid / cole brookstone enthousiast   ˊ˗
+  ˗ˋ   cupid / cole brookstone enthousiast   ˊ˗
                                
                          
 
