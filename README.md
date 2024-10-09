@@ -10,7 +10,7 @@
 
 
 
-![](https://64.media.tumblr.com/78484b8d4537d65611899093d45e817b/e334598c1d279066-31/s500x750/96f9c095e12a689ef8f0c20feba968967b2a5d94.gif)
+![](https://i2.imgflip.com/964587.gif)
 
 
-        ᯓᡣ𐭩
+               ᯓᡣ𐭩
