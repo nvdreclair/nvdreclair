@@ -9,8 +9,11 @@
              biggest kinnie ^_^ !!
 
 
+![Alt text](https://i.postimg.cc/Hx6W5PTp/Untitled699-20241009170554.png)
+
 
 ![](https://i2.imgflip.com/964587.gif)
+
 
 
 
