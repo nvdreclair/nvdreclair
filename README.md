@@ -3,7 +3,12 @@
 
 
  ![Alt text](https://i.postimg.cc/XJDwvDmr/Untitled698-20241008194521.png)
-          
+
+      ˗ˋ   she/her      |       minor     ˊ˗
+
+
+              ˗ˋ   multifandom   ˗ˊ˗
+                
  
           ˗ˋ cupid & cole brookstone ˊ˗
              biggest kinnie ^_^ !!
