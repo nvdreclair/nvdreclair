@@ -10,7 +10,7 @@
 
 <sub>name goes by mira!!
 
-*hyperfixation over shows such as ninjago, lmk, nicktoons shows and many more!!*
+*hyperfixation over shows such as ninjago, lmk, jttw, nicktoons shows and many more!!*
 
 
 *biggest kinnie of kai (ninjago) and manny rivera (el tigre) ^_^ !!*
