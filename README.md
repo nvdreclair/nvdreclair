@@ -12,8 +12,7 @@
 nicktoons shows and danny phantom*
 
 <div align="center"> 
-
-
-
-<div align="center">
-�</span><span style="color: #13ff12">�</span><span style="color: #13ff12">�</span><span style="color: #13ff13">�
+  
+<sub>'  𝙒𝙚𝙡𝙡 𝙜𝙖𝙣𝙜 𝙩𝙝𝙚𝙧𝙚𝙨 𝙜𝙤𝙤𝙙 𝙣𝙚𝙬𝙨 𝙖𝙣𝙙 𝙗𝙖𝙙 𝙣𝙚𝙬𝙨.        
+   𝙏𝙝𝙚 𝙜𝙤𝙤𝙙 𝙣𝙚𝙬𝙨 𝙢𝙮 𝙥𝙤𝙬𝙚𝙧𝙨 𝙖𝙧𝙚 𝙗𝙖𝙘𝙠.     
+   𝘽𝙖𝙙 𝙣𝙚𝙬𝙨 𝙢𝙮 𝙥𝙤𝙬𝙚𝙧𝙨 𝙖𝙧𝙚 𝙗𝙖𝙘𝙠 '
