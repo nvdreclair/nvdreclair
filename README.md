@@ -1,22 +1,19 @@
 
 <div align="center">
-"𝙄𝙩 𝙨𝙝𝙤𝙪𝙡𝙙 𝙗𝙚 𝙨𝙤𝙢𝙚𝙤𝙣𝙚 𝙚𝙭𝙥𝙚𝙣𝙙𝙖𝙗𝙡𝙚... 𝙡𝙞𝙠𝙚 𝙅𝙖𝙮'
-</div>
 
 
----
- 
+![Alt text](https://i.postimg.cc/yxk5KxMz/Untitled770-20250105003218.png)
+
 <div align="center">
 
-<sub>name goes by mira!!
+<sub>⟡ ₊ .  *she/her* |  *minor*     
+⛥     *danny phantom enthusiast*      ⛥  
+   ➜ *hyperfixation over shows such as lego ninjago+monkie kid,   
+nicktoons shows and danny phantom*
 
-*hyperfixation over shows such as ninjago, lmk, jttw, nicktoons shows and many more!!*
+<div align="center"> 
 
 
-*biggest kinnie of kai (ninjago) and manny rivera (el tigre) ^_^ !!*
 
-![Alt text](https://i.postimg.cc/Rh99wrmV/dc3297699ccc10bf8dc9f1384eba4f9b.jpg)
-
-  
-· · ─ ·☽𖤓☾· ─ · ·
-</div>
+<div align="center">
+�</span><span style="color: #13ff12">�</span><span style="color: #13ff12">�</span><span style="color: #13ff13">�
