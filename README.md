@@ -5,8 +5,6 @@
 
 
 
-
-
-![Alt text](https://i.postimg.cc/qM9RJKss/854b5b868141809921d6a33a1f4e56ec.jpg)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314wofu4etpnb4n3jgtgwk5l4bqi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <div align="center">
