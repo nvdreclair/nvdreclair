@@ -1,8 +1,7 @@
 
 <div align="center">
 
-c+h and int is ok unless if im on 
-busy mode!! mostly afk or offtab 
+
 
 <div align="center">
 
