@@ -5,9 +5,6 @@
 <div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=nvdreclair&label=⚝&color=ff93c4)
-
-
 
 ![](https://cdn.discordapp.com/attachments/1022060106956943402/1389259828781649950/IMG-20250630-WA0015.jpg?ex=6863f88a&is=6862a70a&hm=527028f60791c7258343f748e2ff3b0f8f5bef208c82827f12ea6748ef7c6d06&)
 
