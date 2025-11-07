@@ -1,4 +1,4 @@
-
+I'm
 <div align="center">
 
 
@@ -11,6 +11,6 @@
 ![](https://media.tenor.com/XDVNir4fU-cAAAAj/krerdly-krispy-chicken.gif)
 
 
-⠀⠀⠀[prns](https://pronouns.cc/@terauukiii) ⠀⠀⠀⠀⠀⠀⠀[strw](https://aaummmggfff.straw.page)
+⠀[prns](https://pronouns.cc/@terauukiii) ⠀⠀⠀⠀⠀⠀⠀[strw](https://aaummmggfff.straw.page)
 
 <div align="center">
