@@ -11,7 +11,7 @@
 ![](https://i.postimg.cc/W3PJyhMY/6d661f6b1a964c7a659e72267d2c4dac.jpg)
 
 
-⠀[prns](https://pronouns.cc/@terauukiii) ⠀⠀⠀⠀⠀⠀⠀⠀⠀[strw](https://aaummmggfff.straw.page)
+⠀[prns](https://pronouns.cc/@terauukiii) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strw](https://aaummmggfff.straw.page)
 
 
 ⠀
