@@ -5,7 +5,7 @@
 <div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=nvdreclair&style=flat&color=FF69B4&label=⚝)
+![](https://komarev.com/ghpvc/?username=nvdreclair&style=plastic&color=FF69B4&label=⚝)
 
 
 ![](https://media.tenor.com/BxdWS6RXeGwAAAAj/deltarune.gif)
