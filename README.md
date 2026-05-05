@@ -5,7 +5,7 @@
 <div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=nvdreclair&style=plastic&color=00b4d8&label=⚝)
+![](https://komarev.com/ghpvc/?username=nvdreclair&style=plastic&color=477084&label=⚝)
 
 
 ![](https://c.tenor.com/Fe1iAlT20DIAAAAC/tenor.gif)
