@@ -11,7 +11,7 @@
 ![](https://c.tenor.com/Fe1iAlT20DIAAAAC/tenor.gif)
 
 
-[prns](https://pronouns.cc/@terauukiii) ⠀⠀⠀⠀⠀⠀⠀[strw](https://aaummmggfff.straw.page)
+[prns](https://pronouns.cc/@terauukiii) ⠀⠀[strw](https://aaummmggfff.straw.page)⠀⠀[ata](https://berdlyy.atabook.org/)
 
 
 ⠀
