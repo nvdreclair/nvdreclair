@@ -8,7 +8,7 @@
 ![](https://komarev.com/ghpvc/?username=nvdreclair&style=flat-square&color=477084&label=⚝)
 
 
-![](https://tenor.com/view/deltarune-berdly-berdly-gaming-delta-rune-gif-13872100912576076401)
+![](https://media1.tenor.com/m/wIOaSE54GnEAAAAC/deltarune-berdly.gif)
 
 
 
