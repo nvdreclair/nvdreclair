@@ -8,7 +8,7 @@
 ![](https://komarev.com/ghpvc/?username=nvdreclair&style=flat-square&color=0077b6&label=⚝)
 
 
-![](https://media1.tenor.com/m/wIOaSE54GnEAAAAC/deltarune-berdly.gif)
+![](https://cdn.imageurlgenerator.com/uploads/8c1b9fdb-6ff7-44d3-9ac0-c66ee237a9bb.gif)
 
 
 
